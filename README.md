@@ -5,7 +5,7 @@
 
 ### Connect with me:
 
-[<img align="left" alt="Mavco Giovdano #5307" width="22px" src="https://banner2.cleanpng.com/20180612/fyt/kisspng-computer-icons-discord-logo-judgment-apocalypse-s-discord-5b1fbec28d2869.7753029015288071065782.jpg" />][discord]
+[<img align="left" alt="Mavco Giovdano #5307" width="22px" src="https://banner2.cleanpng.com/20180414/qgq/kisspng-discord-teamspeak-computer-icons-logo-game-buttorn-5ad1d92bae24b2.4173961715237020597133.jpg" />][discord]
 
 [<img align="left" alt="SuperAle0706btw" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 
